@@ -1,0 +1,4 @@
+https://www.instagram.com/srzangadoo /?igshid =YmMyMTA2M2Y= para
+https://www.instagram.com/accounts/login/?next=/srzangadoo/https://www.instagram .com/srzangadoo/?igshid =YmMyMTA2M2Y=+*.png +*. gif +*.jpg +*.css +*.js -mime:application/foobar (httrack -@i4-0 /storage/ emulated/0/HTTrack/ Websites/brendo -A25000k%Px %q0u1s2%s%u%fDaK0H0N0p3 https://www.instagram .com/srzangadoo/?igshid =YmMyMTA2M2Y=+*.png +*.gif +*.jpg +*.css +*.js -ad.doubleclick. net/*  -F "Mozilla/4.5
+https://www.instagram.com /srzangadoo/?igshid=YmMyMTA2M2Y=https://www.instagram.com/srzangadoo /?igshid =YmMyMTA2M2Y= para
+https://www.instagram.com/accounts/login/?next=/srzangadoo/  https://www.instagram .com/srzangadoo/?igshid =YmMyMTA2M2Y=+*.png +*. gif +*.jpg +*.css +*.js =+*.png +*.gif +*.jpg +*.css +*.js -ad.doubleclick. net/* -/foobar -F "Mozilla/4.5
